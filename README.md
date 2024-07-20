@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on drawing
-- 📫 How to reach me 
+- 📫 How to reach me ig:Innaf0
 - 😄 Pronouns: She/Her/Sigma
 - ⚡ Fun fact: my favorite agent in valorant is neon
 
